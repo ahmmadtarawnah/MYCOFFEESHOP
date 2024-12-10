@@ -1,5 +1,5 @@
-# MY COFFEE SHOP
-*THIS IS MY DESIGN FOR COFFEE SHOP*  
+# TA COFFEE SHOP
+  
 --------------------------------------------------------
  **Ta Leaf** is a newly opened coffee shop in Jordan, known for its cozy and relaxing ambiance that attracts coffee and specialty drink enthusiasts. The café offers a diverse menu of hot and cold beverages, including specialty coffee, flavored teas, and fresh juices.  
 
